@@ -1,3 +1,5 @@
+OI SOU EU DENOVO HIHII
+
 ## Vinicius Estevão Consolino Brandi
 Sou estudante de Ciencia da Computação, Terceiro Termo
 
